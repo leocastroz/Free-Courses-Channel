@@ -1,4 +1,5 @@
-# Free-Courses-Channel
+# Polemic Knowledge: Free-Courses
+
 On this channel you will find courses of all modalities for free.
 
 
